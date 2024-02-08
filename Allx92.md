@@ -15,7 +15,7 @@ I love exploring and immersing myself in diverse cultural experiences. One of my
 
 When I'm not engrossed in reading about some tech news, language learning or world culture , you'll likely find me running, hiking, or engaged in various activities as part of my Christian faith.
 
-As of late, I've recently started a Data Technicaian role. This I imagine would serve as a catalyst for growth as I try to immerse myself in this new learning journey. So far I've met some incredibly knowledgeable people of various walks and so feel very grateful to learn from and work with my team, not to mention being apart of such a meaningful Digitization project.
+As of late, I've recently started a Data Technician role. This I imagine would serve as a catalyst for growth as I try to immerse myself in this new learning journey. So far I've met some incredibly knowledgeable people of various walks and so feel very grateful to learn from and work with my team, not to mention being apart of such a meaningful Digitization project.
 
 Cheers!
 
